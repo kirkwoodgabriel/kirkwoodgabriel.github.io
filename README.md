@@ -1,1 +1,0 @@
-# kirkwoodgabriel.github.io
